@@ -1,0 +1,2 @@
+# Trifecta
+This blog is focused primarily on the analysis and discussion of different TTRPG systems from three perspectives. The players, the gamemasters, and the audience. Additionally, the trifecta can refer to other elements common to TTRPGs, such as the mage, rogue, and warrior dynamic. Most unique to this blog, however, is the analysis of what different systems offer to everyone involved split into the categories of Mind, Body, and Soul. 
